@@ -1,4 +1,4 @@
-# [💚💚💚💚💚 10年经验老铁测评，最新权威，点击查看攻略，拒绝跑路VPN！](https://cntizi1.com/?gitwuxian227-pcvpn-desc)
+# [💚💚💚💚💚 10年经验老铁测评，最新权威，点击查看攻略，拒绝跑路VPN！](https://cntizi1.com/?gitwuxian227-meimei227-desc)
 
 <!DOCTYPE html>
 <html>
@@ -6,7 +6,7 @@
  <meta charset="utf-8">
 </head>
 <body>
-<a href="https://cntizi1.com/?gitwuxian227-pcvpn-png"><img src="https://cntizi1.com/images/recommend.png"> </a>
+<a href="https://cntizi1.com/?gitwuxian227-meimei227-png"><img src="https://cntizi1.com/images/recommend.png"> </a>
 </body>
 </html>
 
